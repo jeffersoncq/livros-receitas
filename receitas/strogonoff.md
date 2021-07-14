@@ -1,5 +1,7 @@
 # strofonoff de frango :chicken:
 
+### pave 
+
  
 
 - 4 colheres (sopa) de manteiga500 g de frango em tiras1 cebola médiralada1 tablete de MAGGI® Caldo Galinhameia xícara (chá) de águameia xícara (chá) de conhaque200 g de champignons em conserva fatiados2 colheres (sopa) de purê de tomate1 colher (sopa) de mostarda2 colheres (sopa) de ketchup1 lata de NESTLÉ® Creme de Leite
